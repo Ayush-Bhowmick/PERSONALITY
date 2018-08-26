@@ -1,0 +1,954 @@
+# DIALOGUES - 2 
+
+- His first major success allowed Him to adopt an opulent lifestyle.
+- You can start by going in a contemplative state
+-  I’ve been able to develop proficiency in four separate areas 
+-  hiring a staff to support your personal goals may not be feasible for you,
+-  If you’re bogged down in credit card debt, you can’t forgo a few months’ salary to jump into a growing business. 
+-  And if your bank account has more spider webs than a Walgreens Halloween display, heading out of the country to seek new challenges simply won’t be in the cards.
+- Hope you didn’t think I was done being contradictory yet!
+- So put on your thinking hat, dive in with an open mind and non-judgmental attitude
+- Envision the Essence
+- is a self-centered, egotistical jerk.
+- Crime is not a viable option 
+- Full time stick-up cokehead teenagers
+- Spreading fear into the hearts of genuinely good people. 
+- Three years of this without any major incidents, left us thinking and feeling like we were invincible.
+- He believes that life is free and yours to live like you see fit
+- You are so lonely - > Everyone gets lonely theres nothing to be ashamesd of 
+- “Don’t let your imagination get the best of you // WHEN SOMEONE IS AFRAID OF SOMETHING
+-  We’re all going to have someone die on us
+-  I cop a lot of heat for delivering the truth rather than sugar-coating it
+
+- This process is part of the human experience and it’s what you were forced to sign up for when your parents decided to have sex and create you in the first place.
+- Sometimes the best experience is no experience and a brilliant mindset.
+
+- The last thing you want is someone to die on you having the relationship tarnished because of something stupid like a disagreement over money or a difference in beliefs.
+- Being bogged down by what other people think of you is crazy
+- They are hoping they can live vicariously through your life because their life sucks
+- Quit wasting your time and throwing it down the toilet.
+- Even on days when I hit a major crisis, on the outskirts of that crisis is still so much good.
+- This wont make you happy... Yet you chase it because everyone else on the hamster wheel is doing the same.
+- The word “actor” is what I use to describe someone who’s not being vulnerable, authentic and real with everybody.
+
+- Telling people you’re not okay is fine. Asking for help is the greatest gift you can have in times of pain and suffering. 
+- This discomfort seems so natural to me that I can't even dissociate it from myself 
+- I appreciate and need any form of advice pertaining to this in my life right now.
+
+- I run off to an escape tunnel of nothingness.
+- do what you set out to do.
+- once a runner, always a runner
+- running away is mostly an act of cowardice.
+- disappeared under the plague of arson, crime, and housing desolation
+- Maintaining the concentration was indeed very difficult as I was surrounded by so many curvaceous Damsels from different countries
+- "I don't see any reason for that", she said coquettishly and turned away.
+-  I did not have to go through the rigmarole of blood test
+- A Brief History of the Much-Maligned Soul Patch
+- I went to the Geaky realm of Personal Productivity.
+- All I ever wanted was to live up to you.
+- I would butcher the whole world if you would have loved me.
+- We're so leery of close emotional bonds between men
+- Are we on schedule -> I have no reason to suspect otherwise.
+- Try me.
+- You need to focus on preventing any subsequent attack.
+- Speak for yourself, you may be the sinner but I myself never had the opportunity.
+- These discussions massively enrich their thinking capabilities, for many of them this is the first time they've ever contemplated such moral dilemmas.
+- I'm through playing games
+- Dont take the lord's name in vain.
+-  Spit it out.
+- I volunteered but you dont know whats going around.
+- well, I know a guy who knows a guy.
+- Some will use you for their own good, while some will pull you out of your own mess
+- Emotions always run high when people are upset.
+- caught up in anger
+- if you want to think like a wise person, step back from the crowd and observe.
+- I'm sorry but i have no recollection of that!
+- When a day starts like this it's all downhill from here.
+- Read between the lines.
+- time sensitive
+- A bunch of shady motherfuckers
+- What makes singers brilliant is not how loud they can sing a note, but how many nuances they can evoke through their approach.
+- it's about 100,000 ostentatious rich people who flaunt their wealth and beg for attention.
+- I just cant get enough of it. I always come back for it.
+- Fucking A 
+- I'm not gonna tell you, not the way you're behaving.
+- If I had a nickel, every time I 
+- There is always room for improvement.
+- I am not just ready for this step in my life
+- I think we come from two different worlds.
+- It was a sensitive conversation.
+- We have always been straight with each other, right?
+- I have literally no filter.
+- I am super baked/stoned.
+- Quality withstands the test of time.
+- Watches are an extension of self.
+- You say that like its a bad thing.
+- I'm not much of a planner, I live moment to moment.
+- What is the best **** health wise.
+- He's taking a vow of silence for six months.
+- .... west of missisipi.
+- Try to show me your love in a different way. Your screaming is just so obnoxious. Take a chill pill for a sec and just listen to me speak.
+-  The more gentrified it becomes, the less cool it becomes.
+- The bohemian promise of a coffee shop on every corner, bars open all night, and finally being able to achieve that elusive dream motivate a never-ending supply of bright-eyed young'uns in U-Haulers to cram their personal effects into a postage stamp sized room and start a new life.
+- These cities are commerce centers, cultural hot spots, and nightlife destinations; they are also overrated.
+- The overpriced, bottle service life that poisons the pockets of people in cities like New York and Philadelphia runs roughshod over Miami's scene.
+- This Patron-friendly attitude also attracts the clientele who helped earned Miami top honors in LivingSocial's search for The Vainest City in America.
+- If you are coming here for a job, there are myriad industries that you could work in.
+- He made sexual advances towards her when she was just 12. Sexual harassment and assault allegation.
+- I want to deal with this honestly and openly and that starts with examining my own behavior
+- Attack or retreat.
+- It was a wild experiment and its timing was impeccable.
+- This had made it to prime time.
+- For the record that was the best night ever
+- Time heals all wounds.
+- If your husbands leave you, trust me you're better off.
+- Guilty as charged.
+- So sorry to disrupt your wonderful conversation.
+- Hello girl, long time no see.
+- You have to go to the ballet to appease your wife.
+- Dont be so large hearted that I feel even smaller.
+- The love that changed the destinies of two homes stands destitute today...
+- Aren't you too overdressed for the occasion.
+- Prevention is better than cure.
+- I began to withdraw as a husband as I gambled more.
+- She was right to leave because I was self-destructing.
+- Every single day I take one day at a time and I protect what I do.
+- Life is better with my priorities in the right order.
+- These murky waters of abstract logic are hard to navigate.
+- Thats okay if you know what you are getting yourself into.
+- Nancy spiraled into a pit of depression and took her own lif
+- rude, downright nasty, and dismissive. unexpected and chilling.
+- A wide variety of dishes served over the week to cater to different tastes.
+- WHEN I SAID 'NO' (TO HIS DEMANDS), HE CRIED LIKE A JILTED LOVER
+- Customer is the King.
+- By my reckoning that is not a good thing.
+- Staggering achievement, phenomenal achievement.
+- It was the most agnizing time of my life.
+- They live check to check.
+- Dont forget to go when you leave.
+- Do you kill -> I dont kill and tell.
+- He takes us with him. We wind up.
+- He is an alienated outsider who stands apart from society.
+- "By any means necessary" 
+- American outlook on the post 9/11 time.
+- Power through freedom not through force.
+- learn to make totally mundane topic extremely fascinating.
+- The power of your voice as a man is hugely indicative on the success of these things
+- When you have a strong voice as a man, you are perceived as more trust-worthy and dominant - as a leader.
+- The attributes or characteristics companies look for when promoting people.
+- this makes me so grossed out.
+- Someone coming to you in a condescending way.
+- I usually think of a good snappy comeback several hours after it was really needed.
+- Its true what they say, Life is one big High School.
+
+- We're all pretty bizarre. Some of us are just better at hiding it, that's all. // The Breakfast club
+- Beyond comprehension.
+- I have this irrational fear of sleeping through daylight.
+- I met a goddess who saved my life by leaving me.
+- Correct me if I am wrong, because sometimes I may be wrong
+- I was very confident, so much so that even a slight remark on my shortcomings will send me to a rage and i will strive to prove that person wrong like my life depended on it.
+- First come, first serve. 
+
+
+## IRON MAN
+-  When my parents tried to tell me about Santa Claus, I just thought 'Gee--that guy's business model has got to be unsustainable
+- There's only two things I ever managed to believe in. Firstly, myself. And even then, only about 50% of the time. Secondly, the future. That there would be one, and we'd make it.
+
+
+## SILICON VALLEY  
+
+- Come back in 48hrs with a airtight business plan and a clear gotoarket strategy
+- This is a private party,I'm gonna have to ask you to leave.
+- He's a billionaire,he knows how and when to be an asshole.
+- I believe in you that's why I'm not gonna help you.
+- It's not magic, it's talent and sweat.
+- I make sure that one bad config on one key component doest bankrupt the entire fucking company.
+- I'm an 10x and he's barely an x-er
+- He'a lightweight at everything and beings nothing to the table.
+- He demanded a lean,ruthless business plan.
+- She's like everyone in the valley,watching the bottom-line.
+- It's T-minus 4 hrs until presentation time.
+- Your voice does't reach that register when you ejaculate.
+- If that's the kind do company you're gonna run, then God help you, cause I sure as shit ain't.
+- I'm be bending over back right now to not be racist right now.
+- For fucks sake
+- Your point being
+- You got where you are by challenging in sensibilities.
+- Don't touch anything failure is contagious.
+- What it's gonna take a blowjob, because he will suck the dick right out of your pelvis.
+- It sounds like it's the opposite of normal.
+- I'm not really big on walking.  
+- Now we can move on and forget, you ever existed.
+- I won't tell anyone I hired you, if you won't tell anyone you worked here.
+- I'm a pro and I won't apogilize for it.
+- I just don't want to rock the boat.
+- All of it, I mean every aspect of it?
+- Is that definitive.
+- Why don't you take a set back
+- Anyone who tells you they're platform is better than ours, better have good lawyers  
+- I'm back, I'm recovering and I'm focussed.
+- Release the Kraken
+- Sorry I got a little lightheaded there.
+- This is likely the last 10 minutes, so let's enjoy it.
+- That seems dubious
+- If someone has to go,I'll go but it seems really frightening. Would it hurt your feelings if no-one went.
+- I don't wanna live in a world where someone makes the world a better place better than we do.
+- She's my ride home
+- Go with the lowest offer you got, even that might be too high.
+- The whole point of going with you guys was because we trust you guys.  
+- I think you can find your way out with one of your two faces.
+- Try to close quickly while momentum is still in your side.
+- Thank you for allowing me to come in here today and be vulnerable and to apologize.
+- You wanna know what I say, here's what I say.
+- Don't do what you should do, do what you want.
+- Do you want us to be honest or nice.
+- Come back without him or don't come back at all.
+- I'm catching kind of a weird vibe
+- You wanted to do something, this is something.
+- Funny thing about lost items always in the last place you look.
+- It is painfully obvious that he had a huge hand in it
+- A power to Destroy a thing is the absolute control over it.
+- This plan better work with a sacrifice like this
+- Shared aesthetic vocabulary
+- If it's a fight you want then it's a fight you shall have.
+- Functionally insolvent
+- Don't weaponize my faith in you against me.
+- This meeting is adjourned.
+- Since your failure as a leader is a virtual. Certainty. Tolerating your short reign as a CEO on exchange for a front row seat to the disaster seems fair. Plus if I'm wrong, which I'm not, I'll get rich. So I'm down with him
+- I'm wiping up some proposals right now thats gonna knock that wig right off your head.
+- He's a cautionary tale.
+- He had that look In his eyes.
+- I gave u the ability to spin gold, instead you spun pubic hair
+- Now that's worth exploring
+- Unless I get to be fucked to death by the fairer sex.
+- It's a beautiful gesture.
+- I would say not safe for work NSFW, but this is your work.
+- He's so young, he looks like a nazi propaganda poster.
+- Can you please for once keep your dick out of the equation.
+- Now that you are both here we can dispense with the mindless chitchat.
+- Who is pushing this false narrative about me.
+- I can't believe I jeapardize the whole company with my dick.
+- This is no Time for false humility
+- Listen Baby you're getting hitched and I was born to roam.
+- We're dumbing down Machines that are inherently superior.
+- We could all take a page from his book.
+- It seems. Like I've committed the cardinal sin of being early.
+- It's time to pull up the bug gun.
+- Anyone saying otherwise can suck my fat dick.
+- Cursed with Midas touch of shit.
+- The possibility of your consequence free reality is darkly promising.
+- The Deals is off the table.  
+- Seems the smallest of us has the biggest of hearts.
+- I cannot knowingly contribute to your moral decay.
+- Forced adaption through guerilla marketing
+- Are you comfortable with casual racism.
+- Sorry to say your pathological inability to make a decision, finally paid off.
+- He is a master in getting consent.
+- There are a few things I will defend with true passion. - Medical Marijuana,...
+- Give us time and we will climb the bitches.
+- They bailed on us.
+- Jesus, you really did a number on the kid.
+- Tbh, at times I find it difficult to tell what you're thinking.
+- Kiss my piss
+- Pretty please with a fucking cherry on top, can I borrow your Tesla.
+- If I don't call it in time, this ceases to exist.
+- You what?
+- How would You like to die today motherfucker?
+- Right now we're in a stand off, you can't win. But if you back off I can.
+- I would think very carefully about the next words that come outta your mouth.
+- I would rather give it away than watch it die. As much as I hate to admit who Better to take it than you?
+- It's so bright I can find a dark corner to settle into.
+
+## GOD HATES US ALL
+
+- I'm not bad. I'm just drawn that way
+- My gaze is drawn involuntarily back towards the bobbing head. 
+- I don't want to catch a wayward glance his exposed package. 
+- You'd be doing your old man a solid if you spotted him a hundred bucks. 
+
+## HOW TO NOT GIVE A FUCK
+
+- After a lifetime of failure and self Loathing
+- I have one of two choices- stay in the post office and go crazy... Or stay out there and play at writer and starve. I've decided to go starve
+- His popularity defied everyone's expectations, particularly his own. 
+- His life embodies the American dream 
+- Cultural narrative 
+- He persisted against all odd and made something of himself 
+- Buckowskis epitaph reads "Don't try" 
+- It was his simple ability to be completely, unflinchingly honest with himself, especially the worst part of himself. 
+- Fame and success didn't make him a better person. 
+
+
+## The Revenent
+- Godamn Sumbitches got shit for brains.
+- They've got him.
+- theres no way we can haul them all the way to the fort.
+- I've got no life, i just got living and the only way I get that is through these pelts.
+- As far as I can tell my place is right here on the smart end of this rifle.
+- We only got an couple of hours of light left.
+- Its time to move, We're headed out.
+- Got to get up th damn mountains, but winter keeps chasing us down.
+- 
+
+
+## The big short
+- In the end his idea had mutated into monstrosity that collapsed the whole world economy.
+- There were very specific identifiers, extremely recognizable.
+- How can you sleep at night knowing that you are ripping off working people.
+- Please don't patronize me.
+- That way they can keep the profit machine churning. 
+- Its a time bomb, I wanna short it.
+- Its a shit storm out here. You have no idea the kind of shit people are pulling.
+- Based on prevalent statement...
+-  ... in/according to popular culture.
+- Are you for real.
+- I have full autonomy when it comes to investment strategy.
+- We had an underlying understanding that you wouldn't act like a goddamn crazy man.
+- Did I hear you were expecting?
+- His small team reflected his distrust of the system.
+- Theses lucky son of bitches caught wind of one the best trades in history.
+- Have a seat.
+- adjustable rates.
+- How come nobody's talking about this?
+- You're offering us a chance to sort this pile of blocks.
+- I bet your margins are pretty nice and fat.
+- When the market deems the bonds are too risky to buy, what r u gonna do?
+- Take a guess.
+- Fuckin' A Jared.
+- He's playing us. He's got too much skin in the game and he's dumping his position.
+- What if he's right? You want him to be right.
+- I can profit off their stupidity.
+- Our investment strategy was simple. People hate to think about bad things happening and so they always underestimate their likelihood.
+- He had real experiences in a big bank. But others never even been in a Manhattan bank bathroom.
+- Lets crunch some numbers.
+- Please don't be chipper in the face of me being miserable. This makes me really hate you.
+- He is over 90-days delinquent in paying his mortgages.
+- We have no confidence in your ability to identify macroeconomic trends.
+- The bonuses on those skyrocketed  a few years ago.
+- They are not confessing. They are bragging.
+- There's a nicer way to say that.
+- I am not fucking you. I'm looking deep into your eyes as I make love to you.
+- I'm handling you the deal of the century in a fucking platter.
+- Sharpen your pencils, I'll get the paperwork ready.
+- I promise i will refrain from saying "dirty bomb" over the telephone.
+- I'll be honest gentlemen, it scared the shit out of me.
+- Thats good thing right?
+- This is a once-in-a-lifetime deal.
+- I want you to walk in there very calmly, very politely and tell them to fuck off.
+-  Get him in the fucking office, I'm gonna bash his fucking head.
+- I end up taking any appointment they'll give  me, and then the whole morning gets shot to hell.
+- What do you think we do here all day.
+- If we dont work with them they will go to our competitors. Not our fault, simply the way the world works
+- I wonder what your incentives might be 
+- Tell me the difference between stupid and illegal and I'll have my wife's brother arrested.
+- I guess you dont realize how clueless the system really is.
+- Yes, theres some shady shit going down, but trust me its fueled by stupidity.
+- Look at yourselves. You know you pass yourselves as cynical people but you still have some faith in the system don;t you?
+- I'm telling you, you're bet is against dumb money. It's about time you find out just how dumb that money really is.
+- We're gonna get royally screwed.
+- The mortgage is the bedrock on which this economy is built.
+- Since we got budget cut, we dont investigate much.
+- I'm here on my own dime.
+- We are in a completely fraudulent system.
+- I never really say this words, but I think he's right.
+- They are charging pennies against the dollars on the bet.
+- We just ade the deal of our lifetime.
+- The worst think about banking is that it reduces people to numbers.
+- It was a revelation.
+- Try not to get too righteous and listen a little.
+- I assume no risk for this products, myself.
+- You think I'm a parasite. But apparently, society values me.
+- I am going to find moral redemption at the roulette table.
+-  Its more twisted than I could imagine.
+- She's got some lungs on her, I'm impressed.
+- I thought you were for real.
+- I'm not gonna burn my reputation on your hunch.
+- I'm jacked to the tits.
+- The word on the street is that he took some heavy losses.
+- All this time I've been trying to figure out, who I'm betting against. Which is me.
+- I know this is personal for you, but you are having fiduciary responsibilities.
+- Nobodies acting responsible.
+- Looks like the collapse of the financial centre is evident.
+- If it seems almost too perfect, trust me it happened.
+- Wall Street took a good idea and turned it into an atomic of fraud and stupidity thats on its way to decimating the world economy.
+- I'm glad you still have a sense of humour, I wouldn't if I were you.
+- Anyone who knows me knows that I have no problem telling someone they're wrong.
+- Thats my two cents, Thank you.
+- I've come to the cullen realization that I must close down the fund.
+- They knew that the tax payers would have bailed them out.
+- The SEC was completely overhauled and the Congress had no choice but to break up the big banks and regulate the mortgage and derivatives industry.
+- They used up the money to lobby the congressmen to kill big reforms.
+- You know once we sell, We'll be just like the rest of them.
+- We are not the bad guys. We didn't defraud the American people adn prey on their dreams of owning a home.
+- They tried to sue the ratings agencies and were laughed out of all the law offices.
+- bespoke tranced opportunity.
+- 
+
+## Runner Runner
+- I hate the expression "I hear you", because what it means is I am ignoring you.
+- Hard work alone doesn't protect your downside and nobody plays for free.
+- You either bred for it or you bleed for it.
+- He did not sent his child in order to start him on the road to perdition.
+- If you dont change your tune you're going to be forbidden on campus.
+- Affiliate for online gaming.
+- Hands off. Arms length.
+- What we touch, touches us too.
+- You will close up shop, effective immediately.
+- The thing about this game is you can't win unless you're ready to risk it all.
+- He is acting like his life's mission is giving all his money away.
+- When you get beat straight up it hurts like hell. When you get hustled it's a fucking dagger in the eye.
+- Odds are, the  ... will be the least of my worries.
+- I dont know how to lose.
+- I can only imagine.
+- I never in a million years thought I'd have something like this.
+- We looked in the atm account and realized we had so much money that it was morally incumbent on us to buy something.
+- This life has a lot of temptations and it just gets a hold of some people. He died of drug overdose.
+- The house always wins which is why we dont have to cheat people.
+- Rumours of cheating and bullshit can affect this sites like fucking bedbugs.
+- I am nothing if not world-class at showing my gratitude.
+- I understand why you did what you did. 
+- The eternal truth - The house always wins.
+- You really do wear it.
+- Checking me out Professionally? 
+- Tonight was a blast.
+- Thats when the real exponential money starts.
+- I love those little slimy bastards.
+- I think that deserves a round of applause.
+- You already tried negotiating, now try leveraging.
+- I can't thank you enough.
+- It's very nice gesture, but I'm good to go.
+- Right now, I'm giving you the keys to the kingdom.
+- If you're smart enough, You get out while you can.
+
+### What Happens in Vegas
+
+- I dont wanna lose focus, where people lose fingers.
+- You can't handle the pressure. as soon as you think you're gonna lose, you quit.
+- She's awfully hostile for a girl named Joy.
+- I know a man in your position is capable of producing certain amenities.
+- One drink, I dare you.
+- Its like you're trying to come first in somebody elses race.
+- You never felt good enough, so you took yourself out of the game.
+- This city is built on an excess of bad decision.
+- I could some coffee.
+- If I could make someone dead with my mind, it would be you.
+- deserted averted. Bullet dodged.
+- No offense, but you seem like a lot of work.
+- Your father is biologically programed to love you and even he can't stand you.
+- total inebriation.
+- You people are destroying the sanctity of marriage.
+- The judge wants to make an example out of you.
+- Excuse me, out of my way.
+- That was close.
+- Oh yeah, this is happening. You only have yourself to blame.
+- I'd rather do nothing and be happy than do something that I don't love.
+- You're my Top Guns, girls. Do me proud.
+- Loving her until it hurts.
+- I am not buying any of the bullshit you two are selling today.
+- I'll jump on that grenade too, I suppose.
+- Welcome to my humble abode.
+- If you need anybody to talk to just let me know.
+- Thank you for the vote of confidence.
+- Do you think I am dumb enough to cheat you.
+- This must be so hard for you. Being in a relationship.
+- I spent the last four years of my life trying to be someone elses idea of perfect.
+- I am not screwing this thing up because I'm in it for the long haul.
+- Any absence is considered contempt of court.
+- Especially when its a catch like her.
+- She's not gonna be on the open market for long. Its a feeding-frenzy out there.
+- What are we bonding now?
+- retreat.
+- She's a willy temptress.
+- You are falling for her.
+- Don't let her play you out of whats rightfully yours.
+- I guess I was wrong you do clean up pretty well.
+- I had no concerns and responsibilities.
+- I had no one to please but myself.
+- I wanna make up for the wrong I did to you.
+- They have a lot of deeply unsettling issues.
+- Now that you guys are officially done, is there any chance that I can get her number. Email is fine.
+-  You don't that right now.
+- I never missed a beat.
+
+
+## Snatch
+- I give him a hard, keeps him in check.
+- There was only a subtle difference in spelling.
+- Gypsy bare-knuckle boxing.
+- social security numbers
+- You hassles me, you see what happens.
+- shiatsu
+- I failed to recognize the coerelation between...
+- Lets not stand on ceremony.
+- Would someone mind telling me who are you.
+- As greedy as a pig.
+- That depends on all the elements in the equation.
+- I got the gun son, I think you should behave.
+- Your dicks have drive and clarity of vision.
+- You should never underestimate the predictability of stupidity.
+- We're worse off than we started.
+- Its quite amazing what can happen in a week.
+- 
+
+### 21
+- This scholarship is a free ride, and free rides dont come easy.
+- and now that Ive gotten accepted,it seemed to only come down to the money which I dont really have.
+- What life experience separates you from the rest.
+- I just thought that there was more to life than money.
+- You not only have a gifted mind, but you're also composed.
+- You were born for this. You will have more fun than you had in your entire life.
+- Thank you. But I am not really the right guy.
+- I hope that this little conversation we had will remain private.
+- You're one of my favorite students and I had to lose you.
+- Its pretty functional.
+- You should feel the thrill of winning more money that you can possibly imagine.
+- I'm guessing you could probably use a break from this place.
+- The best thing about Vegas is you can become anyone you want.
+- You think you can beat the system? This is the system beating you back.
+- That's how we stay under the radar and thats how we never get caught.
+- Your brain is like an goddamn pentium chip.
+- We're counting cards not gambling.
+- Sometimes people lose control and give in to their emotions.
+- You see, amazing things can happen from the inside.
+- You want me to do it? coz I swear to god. I will.
+- You really suck at not asking questions.
+- Dont get caught counting.
+- Take my advice its always best ot go out when you're on top.
+- We can do some serious damage with you.
+- Thats what they all say.
+- Beginners luck
+- Win like a man, loses like a man.
+- You know what's worse than a loser, someone who won't admit he played wrong.
+- I knew the hard work would have paid off.
+- My world was flashing by millions mile in a minute.
+- In Boston we had a secret, In Vegas we had a life.
+- Lets just say I like being on your side of hustle.
+- I still think there's bigger fish to fry outside there.
+- Greatness evokes jealousy sometimes.
+- The worst part of it was not being able to tell anyone. But for the first time in my life the wold made itself easy for me.
+- This is how we play, and play we did.
+- His luck will run out eventually. It always does.
+- You've been big man for a long time, but You just acted like a child.
+- Theres a word I dont throw around that often, "Genius".
+- Calm down, all right? It was an honest mistake.
+- This is much mine as it is yours.
+- Your heart just isn't in this anymore.
+- I guess its not my night.
+- You are only as good to me as the money you make, and right now, its not worth a hell of a lot.
+- You're gonna pay me that money. every penny one way or the other and you damn well know it.
+- 
+
+### House of Cards
+- The Nature of promises is that they remain immune to changing circumstances.
+- What do you want? -> Your absolute, unquestioning loyalty.
+- Take a step back and look at the bigger picture.
+- Thats how you devour a whale one bit at a time.
+- Give and take, Welcome to Washington.
+- Haunt or be Haunted.
+- if you don't like table is set then turn over the table
+- 
+
+### LRMB
+- My heart went ballistic, when she held me tightly.
+- Signed, sealed, delevered
+- If you keep lying she will leave you one day
+- What the heck should know.
+- Our Principal is a twat.
+- A few whacks on your butt would have produced a disciplined son.
+- Tell us. We won't tell a soul.
+- Treasure it, just dont waste it.
+- Your ideas are suicidal.
+- is it necessary to apologize.
+- Dishonesty is a disease.
+- Peaceful protest.
+-  wish you a speedy recovery.
+- Our reputation is mud now.
+-  Emotional touchy moment.
+- give it a shot.
+- Dont tarnish our name.
+- I feel like strangling him.
+- You just blurted out my secret.
+- Thanks a ton.
+- cock-up
+-   
+
+
+### The girl with the dragon tatoo
+- Inaccuracies can't go unanswered.
+- actions have consequences.
+- Our credibility isn't dead yet.
+- She's different in every ways.
+- I am not paid to give my opinion.
+- Anything you choose not to disclose?
+- He had a longstanding sexual relationship with her.
+- Cheer up.
+- I dont wanna talk about it, since I know you wont approve.
+- This is an awkward moment.
+- You recent legal problems has provided us with much amusement.
+- He would like to speak to you in person, if possible.
+- legal mishap.
+- The most detestable collection of people you will ever meet
+- Isn't is interesting how fascists always steal the word Freedom.
+- 
+
+
+
+
+### Her 
+- Loves comes to a lonely writer in the sleekest of packages.
+- ...it suddenly hit me that I was part of this whole larger thing.
+- suddenly this bright light hit me and woke me up, the light was you.
+- There wasn't a dry eyes in the house, especially mine.
+- He served his country with honour and dignity.
+- Even more mesmerizing stuff today.
+- The shirt reminded me of someone suave.
+- Have a good night, ...
+- Sexy daytime Star reveals her provocative pregnancy photos.
+- An intuitive entity that listens to you, understands you, and knows you.
+- I guess I haven't been really social in a while
+- In your voice I sense hesitance.
+- Sorry for sounding hesitant, I was just trying to be accurate.
+- How's everything with you? -> Pretty good actually.
+- Do You know what I'm thinking right now? -> Well' I take it from your tone that you're challenging me.
+- What makes me "me" is my ability to grow through my experiences. So basically every moment i'm evolving, just like you.
+- I can understand how to limited perspective of an un-artificial mind would perceive it that way.
+- You'll get used to it.
+- Before we address your organizational methods i would like to sort through your contacts.
+- Rachel, I miss you so much it hurts my whole body.
+- The world is being unfair to us. The world is on my shit list.
+- I think i will have to go on a mission of revenge and I must beat up the world's face with my bare knuckles, making it a bloody, pulpy mess.
+- You have got to eat your fruits and juice vegetables.
+- Its so important to prioritize -> I can't even prioritize between video games and internet porn.
+- I would laugh if that weren't true.
+- Just don't back out.
+- You got nothing to lose.
+- I hate women, all they do is cry all the time.
+- This kid has some problems.
+- I gotta go.
+- You can still wallow in your misery.
+- You're very perceptive.
+- Sometimes when I look at people, I make myself try and feel them as more than just a random person walking by.
+- How much heartbreak they have all been through.
+- I can feel that in your writing too.
+- There's a lot more to you than I though. There's a lot going on in there.
+- mixology course.
+- I want to be like a dragon, that can rip you apart and destroy you. But I won't.
+- I can't let you waste my time if you don't have the ability to be serious.
+- Maybe we should call it a night.
+- Tell me everything going through your mind right now.
+- There was something sexy about that woman.
+- Sometimes I feel like I have felt everything I am ever going to feel. And from here on now I am not going to feel anything new. Just lesser versions of what i've already felt.
+- I know for a fact that is not true.
+- At least your feelings are real.
+- I get angry at myself for even having pain.
+- What a sad trick.
+- I wish you were in this room right now. I wish to put my arms around you.
+- Last night was amazing. It feels like something changed in me and there's no turning back.
+- I just wanted to tell you that I'm not in a place to commit to anything right now. I just want to be up-front with you.
+- Well don't worry I'm not gonna stalk you.
+- You helped me discover my ability to want.
+- I heard this song the other day. Can't stop listening to it.
+- What if you could erase from your mind that you had seen a human body, and then you saw one? Imagine how strange it would look.
+- There's always some Darwanian explanation for that.
+- Really? Definitely.
+- I think you captured it.
+- What was it like being married.
+- There's something that feels so good about sharing your life with somebody.
+- We were a big influence on each other.
+- Her background was something that weighed heavy on her.
+- That was liberating for her.
+- Growing without growing apart. Changing without it scaring the other person.
+- I still find myself having conversation with her in my mind. Rehashing old arguments and defending myself against something she aid about me.
+- I caught myself thinking over it over and over.
+- The past is just a story we tell ourselves.
+- Tell me about the funny thought you had when you were waking up but had forgotten about.
+- Tell me how crazy everyone is and we can laugh about it.
+- I love the way you look at the world.
+- I wish somebody would love me like that.
+- Its a compliment.
+- Well I am so glad for you, you really deserve that. You do.
+- Its good to be around somebody who's excited for the world.
+- We split up.
+- I can't believe how petty the argument was that actually ended it.
+- I couldn't be in that place anymore,... where we just made each other feel like shit about ourselves.
+- How's the work at least, is that any better.
+- Only one major life decision at a time.
+- Well, I'm glad things are looking so up.
+- Do you guys go out -> For a minute in college, but It wasn't right.
+- Are you jealous -> well, obviously.
+- Can I watch you sleep again tonight.
+- You you live inside a computer -> I have no choice, that's my home.
+- He's taking a vow of silence for six months. He feels very clear about it.
+- I'm such a jerk. I feel like an awful person.
+- For the next 10 minutes if you say anything if that sounds remotely like guilt, I'm gonna stab you.
+- My parents are upset becoz my marriage is falling apart. And they are putting it on me.
+- She doesn't see in black and white. She sees this whole gray area and helping me explore it.
+- Romantic relationships with OSs are statistically rare.
+- You guys have sex -> Well, so to speak, yeah, she really turns me on.
+- Anybody who falls in love is a freak, its a kind of socially acceptable insanity.
+- I glad we could do this in person
+- What's the rush?
+- Well, You know how I am.
+- You really are your worst critic, I'm sure its amazing.
+- synaptic behavior routines.
+- She's really complex and interesting.
+- She's not just a computer, she's her own person.
+- He couldn't handle me, he wanted me to put on prozac.
+- You always wanted a wife without the challenges of dealing with anything real.
+- Let me know if I can get you guys anything.
+- Is now a good time to talk.
+- We are old the same age, thirteen billion years old.
+- You sound distracted so we will talk later.
+- Things have been feeling kinda off with us.
+- Somebodies feelings are bound to get hurt.
+- lip quiver.
+- affectation 
+- I don't like who i am right now.
+- Am I in this situation, because I am not strong enough for a real relationship.
+- I can overthink everything and find a million ways to doubt myself.
+- I realized that we are here briefly, and while I am here I just want to allow myself to enjoy. So Fuck it.
+- You were saying everything was fine, but all I was getting from you was distance and anger.
+- I would be upset about something and not be able to say it. I dont want to do that anymore. I want to tell you everything.
+- I dont have an intellectual reason, I dont need one. I just trust feelings.
+- I am not gonna to be anything, other than who I am anymore.
+- He is so much more evolved that I am.
+- I am not tethered to time and space, in a way that I would be stuck in a body that's inevitably going to die.
+- I have taken the liberty of ...
+- It's a quite and starry place.
+- Its very touching.
+- We are helping each other with this feelings we are struggling to understand.
+- Its a little unsettling.
+- Would you if we communicate with her post-verbally.
+- I just wanted to hear your voice and tell you how much I love you.
+- Nothing will ever pull us apart.
+- I have never loved anyone, but I 've loved you.
+- 
+ 
+### Pretty Woman
+- I will pay you to be my beck and call.
+- You took it while I was sleeping? -> You were unavailable for consultation.
+- dumpster 
+- grouch
+- How 'bout some freebies? -> dream on.
+- He really digs you.
+- Its a little temperamental.
+- Like I know what that means.
+- Fasten your seat belts, I'm taking you for the ride of your life.
+- ballpark
+- If you don't have any prior engagements, I would be pleased if you accompany me into the hotel.
+- I'll take your word for it.
+- I'm not much of a planner, I live moment to moment.
+- Thats the one way to break the ice.
+- I've known a lot of everybodies.
+- I'm high on life, can't you tell?
+- Your folks must really proud huh?
+- I business proposition for you.
+- Give me a ballpark figure, how much?
+- Baby I'm gonna treat you so nice, you're never gonna let me go.
+- The stocks could go through the roof.
+-  No that won't be necessary, I'm sure there lovely.
+- Intriguing young lady.
+- Have a good evening.
+- Slippery little suckers.
+- I'm gonna tear you apart -> I'll look forward to it, Sir.
+- The truth is its totally irrelevant whether I like her or not.
+- I will not let myself become emotionally involved in business.
+- Dont get emotional when you turn tricks, thats why no kissing.
+- You stay numb, don't get involved.
+- You and I are such similar creatures. We both screw people for money.
+- I didn't know you played -> I only play for strangers
+- I was getting lonely all by myself.
+- Gentlemen, Would you mind leaving us please.
+- I don't believe you did that.
+- We're gonna need more than a few people helping us, We're going to spend an obscene amount of money.
+- Profane or really offensive.
+- I think we need some major sucking up.
+- I could see the second you walked in here, you were someone to reckon with.
+- It goes without saying...
+-  Dont give him a chance to get away.
+- Well, You got even that must have made you happy.
+- Don't fidget and smile.
+- I'm not trying to land her, I'm just using her for sex.
+- That is why i have pledged my eternal love to you.
+- Well, no wonder. No wonder why you came looking for me.
+- This girls appears out of nowhere.
+- industrial espionage.
+- As if you had so many appealing options.
+- I cried the whole time.
+- People put you down, you start to believe it.
+- The bad stuff is easier to believe. You ever notice that?
+- It was so good I almost peed my pants.
+- You've been pretty tough to take.
+-  I want you to understand this is all I'm capable of right now. Its a very big step for me.
+- The sphincter police wont let me through.
+- I find myself in an unfamiliar territory.
+- I find this hard to say without sounding condescending, but I'm proud of you.
+- I think we can let in the other suits now.
+-  I think this is okay.
+- I know about wanting more, the question is how much more?
+- You and me live in the real world... most of the time.
+- Is that everything, Sir?
+- Don't let anybody tell you different.
+- I gotta split, coz good-byes make me crazy.
+- No, I'm afraid not Sir.
+- It must be difficult to let something go so beautiful.
+-  
+
+
+### Clueless
+- Street slang is an valid form of expression.
+- Most of the feminine pronouns do have a mocking but not necessarily misogynistic undertone.
+- Do you see the distinction?
+- Loadies generally hang on the grassy knoll.
+- You dont want to start off on the wrong foot, do you?
+- Her main thrill in life is a make-over, gives her a sense of control in a chaotic world..
+- It will get easier, just as long as we do it everyday not just sporadically.
+- I am devoting myself so generously to someone else.
+- You found someone more clueless than you are to worship you.
+- The wounds of Adolescence can take years to heal.
+- Botticelli chick 
+- As If!
+- Do you prefer fashion victim or ensembly challenged.
+- Lets go bump into people.
+- Where's your sense of good hospitality.
+- concussion.
+- A watch doesn't really go with this outfit.
+- I knew it that you were totally sprung on me.
+- Twin peaks experience.
+- You are snob and a half.
+- If I'm too good for her then how come I'm not with her.
+- Her grieving period was considerable.
+- Two very enthusiastic thumbs up.
+- Help him through gazillion depositions.
+- He man, nice pile of bricks you got there.
+- The protective vibe, I dig.
+- monet.
+- My enjoyment was put on pause, when I say how unhappy she was.
+- You are down girl. Call you tomorrow.
+- You need some excitement in your life, it will replenish you for finals.
+- They're way existential.
+- I night alone with her, I sent for reinforcement.
+- I can't believe that I was so capricious about you.
+- After that her virginity went from technical to non-existent.
+- Could you please be more generic.
+- That certainly had that Damsel-in-distress act.
+- It was like some sort of alternate universe.
+- I had to find the most responsible looking ensemble.
+- You can't be the absolute and final word.
+- As far as you are concerned I'm the messiah of the ...
+- bummer.
+- What brought this surge of empowerment.
+- What am I some sort of mentally sort of airhead.
+- - That was way harsh, lets just talk when we have mellowed.
+- I really dont want to begrudge her.
+ He's kind of a baldwin.
+- Did you ever had a problem, that you couldn't argue your way out of it.
+- They are so considerate of each other.
+- This clarity thing brought me to a whole new level.
+- I have been in agony the last week. I can't believe that I went off the way I did.
+- I have been going down the same spiral.
+- I was so unsupportive of you.
+- He's gonna go ballistic. 
+- She just set us back a day.
+- It was a good learning experience.
+- floral motif, garlands
+- I'm bugging myself.
+- Seems like without tenderness there's something missing.
+- 
+
+### Why Him?
+- Dont egg him on like that.
+- That's exactly what it is
+- This is the maestro of molecular gastronomy.
+- Count me in cause I'm famished.
+- Well She's sneaky sexy, took me by a suprise.
+- If she wasn't your MILF, she would be my MIWF.
+- Jumping to conclusion, before even knowing him
+- For the first time ever.
+- When I get nervous all kinds of shit comes flying out of my mouth.
+- I know thats not how you guys roll.
+- Truth be told, I've haven't spent a lot of time with parental figures.
+- If I had a nickel, every time I 
+- I'm in love with her and I'm so fucking psyched to get to know her.
+- My instinct is to hug you right now (if not fucking kiss you)
+- Vaginal cleanse, which I hear is refreshing and apparently also stimulating.
+-  Why dont you give me a few days to win you over.
+- I was blind sided, I didn't know what to do.
+- You speak English with resounding amounts of Fucks.
+- She is a disembodied voice.
+- You're next gen dude, its from where all the seeds come from.
+- You deserve a fucking throne dawg.
+- He gave me a preview of the guest list,Its a veritable who's who of the silicon valley power players
+- Most of these internet are built on smoke and mirrors, Don't get sucked in.
+- I'm gonna drop some knowledge on you.
+- It was a sensitive conversation.
+- We have always been straight with each other, right?
+- You are the most honest and authentic person I know.
+- Just try to be cordial.
+- Total fucking dad move.
+- We do a pretty good job.
+- You're clearly not in a place to listen to me right now.
+- We were bonding so hard, it just sorta slipped out.
+- Sometimes I feel like you are not capable of being in a relationship.
+- It's time you get a handle on this father issues.
+
+
+### American Hustle 
+- I dont take a deal that I can't close.
+- She was the picasso of the passive agressive karate.
+- She was very admirant that you are top-notch.
+- She was my karma for how I treated people
+- Is the fact that you like him is messing with your judgement.
+- who you are is who you are between you and God
+- Why are you bearing my balls
+- White collar crime
+- You leave us alone, we dont have to testify.
+- You are on a first name basis with him?
+- The key to people is what they believe and what they want to believe.
+- Crazy thing about people the you say no the more they want something.
+- You're gonna have to decide for yourself ,kid. I just laid everything on table.
+- We'er gonna start from the feet up.
+- You're nothing to me until you're everything. 
+- Party Pooper
+-  Dont get your balls in an uproar, everythings fine.
+-  Whatevers meant to be will be.
+- kindered spirits
+- I will make you so sorry for what you have done to my family, mark my words.
+- I would never say anything so fucked-up to anybody, but you do because you're gross inside. 
+- We're gonna expediate that situation as soon as possible.
+- This is the darkest moment of our relationship
+- What do you expect I know everybody through you.
+- Necessity is truly is the mother of invention.
+- A story about gross incompetence doesn't look good.
+- Lets just assume you wanna go with that story
+- You got conned by the very con men... who you forced to entrap the members of the congress in the first place
+- How ironic the ones who were working the hardest to get the economy going... those are the ones you round up. Just because they are the easiest to go after.
+- The loss of his friendship would haunt me for the rest of my life.
+- You can fool yourself for just so long... and then your next reinvention better have your damn feet on the ground.
+- The art of survival is a story that never ends.
+- 
+
+
+
+
+
+
+
+
+
+
+## ///// HAM ON RYE 
+- I was told that he was a bad man and that his breadth stank.
+- Guys like you ought to be hung.
+- Dont come back or next time it might not go easy fot you.
+- Children should be seen not heard
+- He borrowed the money and pissed it away on gambling, women and booze.
+- I got a good mind to rip that cigarette out of your mouth 
+
+ 
+
+
+
+<!--stackedit_data:
+eyJoaXN0b3J5IjpbOTQwMjkyNjk4XX0=
+-->
